@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cr9ies
+- 👋 Hi, I’m ömer berkay
 - 👀 I’m interested in development
 - 📫 How to reach me İG:ooerberkay
 
